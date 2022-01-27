@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+Welcome to Loopsie Daisy where you probably "oopsie-ed" onto this site!
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Here I post about one of my rehabilitated hobbies-- crocheting and knitting-- and show you my projects (Old and New!).
